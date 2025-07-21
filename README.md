@@ -10,3 +10,10 @@ Join today. Survive. Fight. Conquer.
 
 IP: Starlight-Smp.aternos.me:19419
 Discord: https://discord.gg/tHqZcjKVJA 
+Our social media links are here below:
+
+Youtube- https://www.youtube.com/@TheStarlightSmp_YT
+Twitter(X)- https://x.com/NextThe8328
+Twitch- https://www.twitch.tv/thestarlightsmp_mc
+Tiktok- https://www.tiktok.com/@TheStarlightSMP_TTk
+
