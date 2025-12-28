@@ -9,7 +9,7 @@ Step into the shadows of the night and forge your legacy on Starlight SMP, the u
 Join today. Survive. Fight. Conquer.
 
 IP: Starlight-Smp.aternos.me:19419
-Discord: https://discord.gg/tHqZcjKVJA 
+Discord: https://discord.gg/VMQx8c4VHG 
 Our social media links are here below:
 
 Youtube- https://www.youtube.com/@TheStarlightSmp_YT
